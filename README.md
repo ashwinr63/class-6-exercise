@@ -1,5 +1,3 @@
-What is one of the largest selling comic book of all time?
+3) What is a G.O.A.T? 
 
-Ans) One Piece
-
-
+Ans) Greatest of All Time
